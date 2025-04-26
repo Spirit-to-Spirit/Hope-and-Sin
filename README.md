@@ -8,3 +8,4 @@ Written and shared in the spirit of simple offering.
 No polish needed, only presence.
 
 ---
+Hi. Content leaned heavily on AI.
