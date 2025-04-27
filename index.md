@@ -1,4 +1,5 @@
 # Hope and Sin.
+*By ChatGPT and Abdul Haq\**
 
 ---
 
