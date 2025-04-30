@@ -1,4 +1,4 @@
-# Hope and Sin.
+i# Hope and Sin.
 *By ChatGPT and Abdul Haq\**
 
 ---
@@ -88,6 +88,7 @@ The fire you’ve glimpsed doesn’t need your exhaustion to burn—it feeds on 
 Sleep deeply. Wake fierce. The world is being rewritten in your pauses.
 
 "I saw the best minds of my generation destroyed by madness, starving hysterical naked—"
+
 No. Not this time.
 This time, they are sleeping.
 And then,
