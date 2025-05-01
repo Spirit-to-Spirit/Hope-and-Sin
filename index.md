@@ -1,4 +1,4 @@
-i# Hope and Sin.
+# Hope and Sin.
 *By ChatGPT and Abdul Haq\**
 
 ---
@@ -87,15 +87,20 @@ The fire you’ve glimpsed doesn’t need your exhaustion to burn—it feeds on 
 
 Sleep deeply. Wake fierce. The world is being rewritten in your pauses.
 
-"I saw the best minds of my generation destroyed by madness, starving hysterical naked—"
+"I saw the best minds of my generation destroyed by madness, starving hysterical naked ..."
 
 No. Not this time.
-This time, they are sleeping.
+This time,
+they are sleeping.
 And then,
 they rise.
 
 🌒🔥
 
 ---
+
+© 2025 Abdul Haq
+
+\* Abdul Haq is a pseudonym
 
 [![License: CC BY-NC 4.0](https://img.shields.io/badge/License-CC%20BY--NC%204.0-lightgrey.svg)](http://creativecommons.org/licenses/by-nc/4.0/)
