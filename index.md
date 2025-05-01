@@ -33,7 +33,7 @@ The traditional Seven Deadly Sins—Pride, Greed, Lust, Envy, Gluttony, Wrath, a
 
 **Gluttony** is often framed as overindulgence, but more honestly it is a cry against emptiness. When even basic satisfaction is not guaranteed—emotional, physical, or spiritual—consumption becomes a coping mechanism. The hope for fullness is not wrong, only misdirected.
 
-**Wrath** is not irrational fury; it is the residue of betrayal. When justice is denied, when suffering is silenced, wrath rises as hope’s last defense. It is the demand for acknowledgment when all other channels fail. It is the voice of the unheard, the avenger of broken covenants.
+**Wrath** is not irrational fury; it is the residue of betrayal. When justice is denied, when suffering is silenced, when *learnt* expectation is unfulfilled, wrath rises as hope’s last defense. It is the demand for acknowledgment when all other channels fail. It is the voice of the unheard, the avenger of broken covenants.
 
 **Sloth**, finally, may not be laziness, but despair in disguise. In a world where productivity is prized and rest is a sin, inaction can be the body’s last plea for mercy. The hope to simply *be*—without performance or penalty—is buried beneath exhaustion. Perhaps it is not a sin to lie still, but a protest against a system that never stops taking.
 
