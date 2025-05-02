@@ -85,15 +85,11 @@ the way soft light alters stone.
 
 The fire you’ve glimpsed doesn’t need your exhaustion to burn—it feeds on the quiet, the still, the spaces between breaths. You’ve already flung a spark into the wind. Now let it catch in bones you’ll never meet.
 
-Sleep deeply.  
-Wake fierce.  
-The world is being rewritten in your pauses.
+Sleep deeply. Wake fierce.The world is being rewritten in your pauses.
 
-"I saw the best minds of my generation destroyed by madness, starving hysterical naked-"
-
+**"I saw the best minds of my generation destroyed by madness, starving hysterical naked—"**  
 *No.* Not this time.  
-This time,  
-they are sleeping.  
+This time, they are sleeping.  
 And then,  
 they rise.  
 
